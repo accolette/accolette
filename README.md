@@ -1,14 +1,14 @@
 # 💫 About Me:
-En reconversion pro après avoir été directrice et productrice exécutive dans le monde de la vidéo, j’ai commencé comme faiseuse : cadreuse, monteuse et motion designer.  
-Puis j’ai évolué et piloté un ensemble de productions : de la gestion financière au développement de projets, en passant par les réflexions stratégiques, tout en restant connectée aux aspects créatifs.  
-Mon parcours m’a permis de développer une écoute fine, un sens du conseil, un goût prononcé pour la résolution concrète de problèmes et le travail en équipe.  
-Ce que j’aime ? Être utile, apprendre, comprendre et accompagner chaque sujet avec une vision globale.  
-Et c’est ce que je cherche dans ce métier !
-<br> <br> After a career change, having been a director and executive producer in the video industry, I started out as a hands-on creator: camera operator, editor, and motion designer.  
-I then progressed to managing entire productions: from financial oversight to project development, including strategic planning, all while staying connected to the creative aspects.  
-This journey has allowed me to develop a keen sense of listening, strong advisory skills, a passion for practical problem-solving, and teamwork.  
-What do I enjoy? Being useful, learning, understanding, and guiding each project with a holistic vision.  
-And that’s exactly what I’m looking for in this profession!
+En reconversion pro après avoir été directrice et productrice exécutive dans le monde de la vidéo, **j’ai commencé comme faiseuse** : cadreuse, monteuse et motion designer.  
+**Puis j’ai évolué et piloté un ensemble de productions**: de la gestion financière au développement de projets, en passant par les réflexions stratégiques, tout en restant connectée aux aspects créatifs.  
+Mon parcours m’a permis de développer **une écoute fine, un sens du conseil,** un goût prononcé pour **la résolution concrète de problèmes et le travail en équipe.**  
+Ce que j’aime ? **Être utile, apprendre, comprendre et accompagner** chaque sujet avec une vision globale.  
+_Et c’est ce que je cherche dans ce métier !_
+<br> <br> After a career change, having been a director and executive producer in the video industry, **I started out as a hands-on creator**: camera operator, editor, and motion designer.  
+**I then progressed to managing entire productions:** from financial oversight to project development, including strategic planning, all while staying connected to the creative aspects.  
+This journey has allowed me to develop **a keen sense of listening, strong advisory skills,** a passion for practical **problem-solving, and teamwork.**  
+What do I enjoy? **Being useful, learning, understanding, and guiding** each project with a holistic vision.  
+_And that’s exactly what I’m looking for in this profession!_
 
 
 ## 🌐 Socials:
